@@ -1,1 +1,1 @@
-# kimin0810.githube.io
+# kimin0810.github.io
